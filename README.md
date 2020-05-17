@@ -1,0 +1,1 @@
+# diamond70.github.io
